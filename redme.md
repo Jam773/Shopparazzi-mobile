@@ -1,0 +1,1 @@
+this is shopparazzi mobile app
